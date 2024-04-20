@@ -1,6 +1,6 @@
 
 
-![image](https://github.com/Kanzykanz/Kanzykanz/assets/164191059/a4cdb07b-4b7f-446f-9fa2-094267ed2a53)
+![image](https://github.com/Kanzykanz/Kanzykanz/assets/164191059/67102e88-004e-4b63-9abd-1b3f178e3e9c)
 
 
 <a href="https://www.glitter-graphics.com"><img src="http://dl10.glitter-graphics.net/pub/585/585586e4j4vxtm9j.gif" width=150 height=20 border=0></a><br><a href="https://www.glitter-graphics.com" target=_blank>
