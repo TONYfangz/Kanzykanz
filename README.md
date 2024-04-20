@@ -1,9 +1,3 @@
 
-
-![image](https://github.com/Kanzykanz/Kanzykanz/assets/164191059/67102e88-004e-4b63-9abd-1b3f178e3e9c)
-
-
-<a href="https://www.glitter-graphics.com"><img src="http://dl10.glitter-graphics.net/pub/585/585586e4j4vxtm9j.gif" width=150 height=20 border=0></a><br><a href="https://www.glitter-graphics.com" target=_blank> <a href="https://www.glitter-graphics.com"><img src="http://dl5.glitter-graphics.net/pub/674/674435gqg299c4xs.gif" width=100 height=26 border=0></a>
-<a href="https://www.glitter-graphics.com"><img src="http://dl9.glitter-graphics.net/pub/523/523619kq839m3zgi.gif" width=150 height=20 border=0></a><br><a href="https://www.glitter-graphics.com" target=_blank></a> <a href="https://www.glitter-graphics.com"><img src="http://dl4.glitter-graphics.net/pub/706/706014obs23pkvu8.gif" width=150 height=51 border=0></a><br><a href="https://www.glitter-graphics.com" target=_blank>
-![image](https://github.com/Kanzykanz/Kanzykanz/assets/164191059/ec973b81-1cd1-4155-82e7-651c60b6a63a)
+![tumblr_a62f390dcbfd64d88a598f59b18e14ca_dc6faf5d_500](https://github.com/Kanzykanz/Kanzykanz/assets/164191059/fb85ef32-a7b0-401a-858c-b1f107c6b55b)
 
