@@ -1,4 +1,6 @@
-### Hi there 👋
+###
+![image](https://github.com/Kanzykanz/Kanzykanz/assets/164191059/c7c94041-f703-4194-a1d6-4d97d1d85417)
+
 
 <!--
 **Kanzykanz/Kanzykanz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
