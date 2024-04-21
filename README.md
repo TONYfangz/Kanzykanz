@@ -1,6 +1,5 @@
 
-![tumblr_a62f390dcbfd64d88a598f59b18e14ca_dc6faf5d_500](https://github.com/Kanzykanz/Kanzykanz/assets/164191059/fb85ef32-a7b0-401a-858c-b1f107c6b55b)![D1D642AA-9B3A-4A68-BFBA-C8C6C2A4CF1C](https://github.com/Kanzykanz/Kanzykanz/assets/164191059/ace109fd-51d1-414c-a1a0-5c10e03e84e8)
-
+![tumblr_a62f390dcbfd64d88a598f59b18e14ca_dc6faf5d_500](https://github.com/Kanzykanz/Kanzykanz/assets/164191059/fb85ef32-a7b0-401a-858c-b1f107c6b55b)
 
 ![starscream-transformers](https://github.com/Kanzykanz/Kanzykanz/assets/164191059/6f4b1302-270f-471d-be7a-ba2f5e665e4f)![bumblebee-transformers](https://github.com/Kanzykanz/Kanzykanz/assets/164191059/5019c1f0-83fa-4575-8889-ca5c08971abd)![optimus-prime-transformers-animated](https://github.com/Kanzykanz/Kanzykanz/assets/164191059/c889e5cc-45d6-4fc0-a932-3e03ff8797f3)![soundwave-transformers](https://github.com/Kanzykanz/Kanzykanz/assets/164191059/cf597b9c-5f04-4e49-83c4-d73340e29ecc)
 
